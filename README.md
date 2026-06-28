@@ -1,1 +1,0 @@
-# Tugas-Besar-Algoritma-dan-Pemrograman-II-Kelompok-16
